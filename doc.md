@@ -5,7 +5,7 @@ title: Đôi bạn
 
 # Phần I
 
-## Chương 1**
+## Chương 1
 
 -- Trời muốn trở rét...
 
@@ -281,7 +281,7 @@ Chàng sung sướng, cái sung sướng vẩn vơ của một người đón ch
 
 Dũng vào ngồi bên cạnh Loan. Bà hàng mở vung múc nước chè, một làn hơi nóng thoảng qua mặt Dũng. Dũng không nghĩ gì đến Thái nữa;những người bạn ngồi quanh chàng, người nào lúc đó nét mặt cũng lộ vẻ bình tỉnh. Dũng có cảm giác êm ả lạ lùng và cái quán hàng trong đó có Loan ngồi, chàng tưởng như một chốn ấm áp để chàng được cách biệt hẳn cuộc đời mà chàng thấy đầy phiền muộn, buồn bã như buổi chiều mờ sương thu ngoaì kia.
 
-## Chương 2**
+## Chương 2
 
 Bên ông tuần có mở tiệc thọ mừng cụ Bang, bà nội Dũng. Loan sang làm giúp từ sáng sớm ;nàng cũng rối rít vui vẻ, vì công việc nhà Dũng nàng coi không khác gì công việc nhà nàng. Trong một lúc rỗi tay, Loan chạy qua về thăm nhà để lấy cớ đi lại vì ngồi mỏi.
 
